@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @0974201
+- 👋 Hi, I’m BlackManbar
 - 👀 I’m interested in gaming + coding
 - 🌱 I’m currently learning python 🐍
 - 📫 How to reach me decoyfalcon#0107 @ discord
